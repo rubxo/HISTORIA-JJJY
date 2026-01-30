@@ -50,4 +50,43 @@ Fue paciencia.
 Fue creer cuando nadie más lo hacía.
 
 Habían pasado del barro al cielo.
-...
+
+PARTE III: EL PESO DE LA GLORIA
+
+Ser campeones cambió todo.
+
+El Atlético Bahía del Sur pasó de ser una historia bonita a convertirse en un fenómeno nacional. De un día para otro, el pequeño estadio de hierro viejo empezó a llenarse de cámaras, patrocinadores, periodistas y turistas que querían ver “al club milagro”. La gente ya no hablaba del barro, hablaba del oro.
+
+Pero en el vestuario, la victoria no se sentía tan ligera.
+
+Los jugadores que antes eran pescadores, mecánicos o estudiantes ahora recibían ofertas millonarias. Agentes insistentes aparecieron con promesas y presiones. Algunos compañeros comenzaron a mirarse distinto. No por ego, sino por miedo. Miedo a no estar a la altura. Miedo a perder lo que tanto costó conseguir.
+
+Tomás Leiva lo entendió rápido: el verdadero enemigo ya no era el rival, era la distracción.
+
+La nueva temporada empezó con una realidad dura: el Bahía del Sur era el objetivo de todos. Ya nadie los subestimaba. Cada partido contra ellos era una final para los demás. Y los golpes llegaron. Les marcaron en los últimos minutos. Les empataron partidos ganados. Les expulsaron jugadores. La presión se comía el aire.
+
+En medio de esa tormenta, ocurrió algo que casi destruye el sueño: el club vendió a uno de sus mejores jugadores para pagar deudas y mantener la estabilidad. Fue una decisión necesaria… pero dolió como una traición.
+
+El equipo se partió por dentro.
+
+Hubo discusiones. Hubo silencio. Hubo noches donde nadie hablaba después de los entrenamientos. El pueblo, que antes celebraba, empezó a exigir. Y cuando el equipo dejó puntos importantes, la prensa cambió su discurso: “fue suerte”, decían. “ya se acabó el cuento”.
+
+Tomás Leiva reunió al grupo una vez más. Los miró sin gritos, sin frases falsas. Solo dijo:
+
+—La gloria pesa. Y el que no esté dispuesto a cargarla, que se baje ahora.
+
+Nadie se movió.
+
+Entonces les recordó una verdad que habían olvidado: ellos no nacieron para ser campeones, nacieron para resistir. Nacieron en barro. Nacieron en derrota. Nacieron en necesidad. Y por eso podían soportar la presión de la cima.
+
+Los entrenamientos se volvieron más duros. Las charlas más honestas. El vestuario dejó de ser un lugar de fama y volvió a ser un lugar de guerra.
+
+Y de esa crisis nació un equipo más fuerte.
+
+No el equipo que sorprendía.
+Sino el equipo que se sostenía.
+
+Porque llegar fue difícil.
+Pero mantenerse… fue lo verdaderamente legendario.
+
+Y así, con cicatrices en el alma y hambre en el corazón, el Atlético Bahía del Sur se preparó para el reto más grande: Europa.
