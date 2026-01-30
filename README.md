@@ -20,5 +20,5 @@ La Segunda B fue más dura. Viajes largos, rivales mejor preparados, menos marge
 
 Dos años después, contra todo pronóstico, lograron otro ascenso. La Segunda División ya no era un sueño, era una realidad. Allí aprendieron a perder sin romperse, a competir sin miedo y a crecer sin olvidar de dónde venían.
 
-Cinco años después de aquel campo de barro, el Atlético Bahía del Sur ascendió a Primera División. Nadie lo celebró más que ellos mismos. Para el resto del país, eran solo un equipo destinado a descender.
+Cinco años después de aquel campo de barro, el Atlético Bahía del Sur ascendió a Primera División. Nadie lo celebró más que ellos mismos. Para el resto del país, eran solo un equipo destinado a descender...
 ...
